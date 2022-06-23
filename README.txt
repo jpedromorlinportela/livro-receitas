@@ -1,4 +1,4 @@
 Histórias da matilda e do teodoro
 
-teodoro gato doido
+teodoro gato preto doido
 Matilda frajola
